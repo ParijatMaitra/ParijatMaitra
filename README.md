@@ -1,3 +1,3 @@
 ## Hi there 👋
 
-PhD student (in Economics) at Stockholm University
+I’m a PhD student in Economics at Stockholm University, working at the intersection of Labour and Development Economics.
